@@ -1,3 +1,1 @@
-https://drive.google.com/file/d/1_kGAGuBNX6_U_7AA9APlOgHJ94ihWaBO/view?usp=sharing
-
-https://drive.google.com/file/d/12z4Y1ipAZCTdhJSiZVj6Yl5c3HyWlTcp/view?usp=sharing
+https://docs.google.com/document/d/1Lme7A1D863ZeuI5s4LrJCmMo7Ta01STt/edit?usp=sharing&ouid=108507551349645553426&rtpof=true&sd=true
